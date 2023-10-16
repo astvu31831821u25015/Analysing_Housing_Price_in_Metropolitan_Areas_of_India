@@ -1,2 +1,4 @@
 # Analysing_Housing_Price_in_Metropolitan_Areas_of_India
-[Google slides voice over](https://docs.google.com/presentation/d/1Ww_rYrwfPUt805xNIFVgOrsuX665BCeF/edit#slide=id.p1)
+[Google slides voice over](https://l.instagram.com/?u=https%3A%2F%2Fdocs.google.com%2Fpresentation%2Fd%2F1Ww_rYrwfPUt805xNIFVgOrsuX665BCeF%2Fedit%3Fusp%3Ddrivesdk%26ouid%3D100614102812697169965%26rtpof%3Dtrue%26sd%3Dtrue&e=AT3I6p7a4C9IRKGjVx8pWNi_tHIP0Q7kVcvAoTAYxn1RWpuDw6TsuHPzXrcdK8Uedkn4Z7I-XeI03hObRdpxhyK-aD8oCiQRjzd4LbIEohVsn0IF_dIFiVKXtYKvwWoxUuoy6fo)
+[Story](https://l.instagram.com/?u=https%3A%2F%2Fdrive.google.com%2Ffile%2Fd%2F1Wqtb0z1ff41fMtPziV1xJKOBff4Wqeyn%2Fview%3Fusp%3Ddrivesdk&e=AT3I6p7a4C9IRKGjVx8pWNi_tHIP0Q7kVcvAoTAYxn1RWpuDw6TsuHPzXrcdK8Uedkn4Z7I-XeI03hObRdpxhyK-aD8oCiQRjzd4LbIEohVsn0IF_dIFiVKXtYKvwWoxUuoy6fo)
+[Dash board](https://l.instagram.com/?u=https%3A%2F%2Fdrive.google.com%2Ffile%2Fd%2F1X7jwl5QiBdNMb-oUsbFqJNVmlOs4tv-4%2Fview%3Fusp%3Ddrivesdk&e=AT3I6p7a4C9IRKGjVx8pWNi_tHIP0Q7kVcvAoTAYxn1RWpuDw6TsuHPzXrcdK8Uedkn4Z7I-XeI03hObRdpxhyK-aD8oCiQRjzd4LbIEohVsn0IF_dIFiVKXtYKvwWoxUuoy6fo)
